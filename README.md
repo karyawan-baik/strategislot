@@ -1,0 +1,2 @@
+# strategislot
+Apa Cari Om ^^
